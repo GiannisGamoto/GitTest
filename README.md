@@ -1,1 +1,2 @@
-ena duo tria me lene popi
+ena duo tria me lene popi.
+proti allagi 
