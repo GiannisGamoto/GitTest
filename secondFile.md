@@ -1,0 +1,1 @@
+pethane ki o lucky luke 
